@@ -5,7 +5,7 @@ https://chrome.google.com/webstore/detail/survivio-cheat-injector/nablibibojdfgk
 If this is taken down or not working, download it third party with there instructions.
 
 
-Go to my discord (FIND PEOPLE TO PLAY SURVIV.IO AND OTHERS | GET FILE EASYER) https://discord.gg/f2NctrM7Rr
+Go to my discord (FIND PEOPLE TO PLAY SURVIV.IO AND OTHERS | GET FILE) https://discord.gg/f2NctrM7Rr
 to get in the discord, first go to #welcome and read this "Welcome to our server! Since the corona-virus came up I decided to make a discord   were we could watch games, stream movies, watch streams, uno, and more! To verify
 please click the check mark by reading the following messages coming up.
 Please after you read, go to the #rules to not get banned!
@@ -14,9 +14,9 @@ Please click the check mark if you agree
 
 Click the check mark in #welcome . DONE!
 
-BACK TO THE MAIN PROJECT 
-
-1. scroll up to the download and click download zip, If you don't see it or can't find it, JOIN MY DISCORD FOR DOWNLOAD  LINK IS ABOVE!!!
+BACK TO THE MAIN PROJECT                                                  https://discord.gg/f2NctrM7Rr
+                                                                              
+1. Go to my discord and download the zip, JOIN MY DISCORD FOR DOWNLOAD  LINK IS ABOVE!!! - https://discord.gg/f2NctrM7Rr
 it should be a Ice_HACKS_kruffer.zip
 698.79 KB
 2. Then extract it.
